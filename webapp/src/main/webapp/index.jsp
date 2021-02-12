@@ -4,3 +4,4 @@
 <h2> Satan can not take out your blessings </h2>
 <h2> Trust in Jesus!! </h2>
 <h2> All Praises to Jesus, Amen!! </h2>
+<h2> Jesus can change every worst situation, Amen!! </h2>
